@@ -1,1 +1,0 @@
-# DeaD_HanD_list_persa
